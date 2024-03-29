@@ -1,1 +1,0 @@
-# MetodologiaC1
